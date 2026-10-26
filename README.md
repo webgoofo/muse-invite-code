@@ -2,7 +2,7 @@
 
 **Invite code: `RJOKFK`**
 
-Join Muse, redeem this code in Settings within **48 hours** of joining, and we each get **10 billion Muse tokens** on my invite screen's terms. Remaining uses on my screen on 2026-10-26: **12**. If it ever says the code is full, that count has changed — please try another valid code instead of retrying this one repeatedly.
+Join Muse, redeem this code in Settings within **48 hours** of joining, and we each get **10 billion Muse tokens** on my invite screen's terms. Remaining uses on my screen on 2026-10-26: **8**. If it ever says the code is full, that count has changed — please try another valid code instead of retrying this one repeatedly.
 
 ## What is Muse?
 
